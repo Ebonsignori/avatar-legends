@@ -26,7 +26,13 @@ At a minimum you should at least consider (but don't have to have in stone):
 
     Perhaps you are siblings, friends, partners in crime, etc. If you are an airbender it might make sense for you to know the older man from the intro. Maybe you are a bender from the same temple. Maybe his apprentice?
 
-    If you are a firebender consider that you will need to be slightly rebellious or not accepting of fire nation nationalism. You can be from anywhere and you don't _have_ to have been on the street from the intro. For instance, you could be on one of the arriving ships. Yes, even the fire nation ship! We'll just need to get creative with a story to get you off of it :eyes:
+    If you are a firebender consider that you will need to be slightly rebellious / not _completely_ accepting of fire nation nationalism. We don't want someone who wants to uhhh _displace_ their party members (no one dies on screen in the avatarverse :grin:)
+
+    You can be from anywhere. You don't have to have been on the street from the intro. For instance, you could be on one of the arriving ships. Yes, even the fire nation ship! We'll just need to get creative with a story to get you off of it :eyes: 
+
+    If you want, you can be one of the woman from the ship, or someone on board their ship. Hell, you can even be the old man from the intro.
+
+    The possibilities are endless, it's up to you to decide.
 
 7. Why are you in Port Jinkou. What brought you to the market street?
 8. Your playbook!

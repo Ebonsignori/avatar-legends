@@ -27,27 +27,31 @@ Further down the street at the docks, a new ship has just arrived. It carries ne
 
 - - -
 
-Two women exit the ship. One is hooded, the other is in water tribe garb, and both look absolutely exhausted. As they approach the market, the hooded woman seems to miss a step when she sees the older air nomad. “I’ve changed my mind.” you overhear her say to her companion, “We need to alert everyone. Immediately.” 
+Two women exit the ship. One is hooded, the other is in water tribe garb, and both look absolutely exhausted. As they approach the market, the hooded woman seems to miss a step when she sees the older air nomad. “I can't...” you overhear her say to her companion, “We need to alert this town. Immediately.” 
 
 “We’ve talked about this , I won’t - “ you miss the rest of the reply as the crack of the earthbender builder cutting another brick fills the air.
 
 The hooded woman practically yells to her companion in reply, “You don’t understand! They won’t stop until they’ve removed every living airbender!”
 
-You quickly realize you aren’t the only one who overheard this. The constant rhythm of the drum suddenly cuts off. The boy helping the cabbage merchant drops the cabbage he was handling. The earthbender builder's rock hangs uncut in mid air. 
+You quickly realize you aren’t the only one who overheard this. The constant rhythm of the drum suddenly cuts off. The boy helping the cabbage merchant drops the cabbage he is handling. The earthbender builder's rock hangs uncut in mid air. 
 
 Concerned, the elderly air nomad asks in a voice loud enough for all to hear, “Sorry to interrupt, but who would want to harm us?”
 
-At this the hooded woman removes her hood revealing tattoos that are twins of the older man’s and replies, “The fire nation. They’ve completely destroyed our air temples, and they’re on the hunt for any who might have escaped.”
+In response, the hooded woman removes her hood revealing tattoos that are twins of the older man’s and replies, “The Fire Nation. They attacked our temple, and are on the hunt for any who might have escaped.”
 
-The silence this time is much longer, punctuated only by the cawing of sparrow salmon flying overhead. Abruptly, the woman at the cabbage stand drops her basket of cabbages and points out towards the ocean. “Is that… Is that a fire nation ship?” she asks into the silence. 
+The silence this time is much longer, punctuated only by the cawing of sparrow salmon flying overhead. A boy from the crowd dressed in faded red robes yells, "The Fire Nation would never do that!" A few people mumble in agreement, others back away from the airbender woman and her companion.
 
-“Oh no. That’s them. We’re all in danger!” the water nation woman cries over the simultaneous wails of “My caaaabages!” from the father and son of the cabbage stall.
+While the crowd expresses their disbelief, the guard is distracted by the sparrow salmon passing overhead. They never fly in from the sea this early. He scans the direction the birds came from and sees a plume of smoke jetting out of a ship heading directly towards the town. "That ship is on fire" he yells while pointing towards the fast approaching vessel.
 
-Faster than you would have thought possible, the busy street is evacuated. People scurry away with their carts, grab their children, and move away from the docks. The guard on duty also disappears, but you hope it’s to get help. 
+Frantic, the airbender woman removes more of her cloak, revealing fresh burn marks on her right arm. "Please listen! I'm the only nun who escaped the Eastern Air Temple" she points with her seared arm towards the smoking ship, "And that ship isn't on fire. It's one of the new Fire Nation ships that attacked us!"
 
-Because as you look around you notice that not many people remain. There are the two women, the earthbender builder, and the older air bender frozen in shock, disbelief plain on his weathered face. 
+The woman at the cabbage stand abruptly drops her basket of cabbages which seems to set off a chain reaction of motion in the market. The builder drops his stone with a thud that cuts off the simultaneous wails of "My caaaabages!" from the father and son of the cabbage stall. Carts begin to pack up their wares as people begin to abandon the market faster than you thought possible. 
 
-Around the market you notice five more people who didn’t flee with the others. Who are they and what will they do? 
+The guard runs off into the town. You hope it's to get help.
+
+Because you notice that not many people remain in the street. The airbender woman and her water tribe companion try to beckon the older airbender, but he is frozen to the ground, disbelief plain on his weathered face. 
+
+You're not far from them. In fact you notice five others who didn’t flee with the crowd standing nearby. Who are they and what will they do? 
 
 For that matter, who are you? 
 
