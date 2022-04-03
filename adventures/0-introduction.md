@@ -21,7 +21,7 @@ You watch as a group of children clap along to a hog monkey dancing to the rhyth
 
 At a clearing towards the end of the road, a middle aged man is creating the foundations of a home. As he lifts his arms in the direction of a nearby wagon, a boulder rises from it and moves towards the clearing, as if guided by his arms. He sets it down and with a horizontal chopping motion of his hands followed by a quick vertical chop the sides of the uneven rock are sliced off, leaving a smooth brick. 
 
-Watching him work is an older man with an easy smile, kind eyes, and the unmistakable bald head covered with the signature tattoos of an air nomad.
+Watching him work is an older man with an easy smile, kind eyes, and a bald head covered with the unmistakable tattoos of an air nomad.
 
 Further down the street at the docks, a new ship has just arrived. It carries news that is about to change everything.
 
