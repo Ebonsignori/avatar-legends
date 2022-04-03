@@ -20,14 +20,16 @@ At a minimum you should at least consider (but don't have to have in stone):
     - Urban
     - Wilderness
 3. [Your name](https://youtu.be/tZQJhvs4amQ).
-4. Your connections! Do you know anyone else in the party or intro sequence? 
+4. An animal you'd like to see (you can create your own [hybrid creature](https://avatar.fandom.com/wiki/Category:Hybridized_creatures) if it doesn't already exist!)
+5. A place in the avatar verse you'd like to visit (if any)
+6. Your connections! Do you know anyone else in the party or intro sequence? 
 
     Perhaps you are siblings, friends, partners in crime, etc. If you are an airbender it might make sense for you to know the older man from the intro. Maybe you are a bender from the same temple. Maybe his apprentice?
 
     If you are a firebender consider that you will need to be slightly rebellious or not accepting of fire nation nationalism. You can be from anywhere and you don't _have_ to have been on the street from the intro. For instance, you could be on one of the arriving ships. Yes, even the fire nation ship! We'll just need to get creative with a story to get you off of it :eyes:
 
-5. Why are you in Port Jinkou. What brought you to the market street?
-6. Your playbook!
+7. Why are you in Port Jinkou. What brought you to the market street?
+8. Your playbook!
 
 ### [Playbooks](../resources/Playbooks.pdf)
 
