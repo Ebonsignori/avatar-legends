@@ -53,4 +53,4 @@ For that matter, who are you?
 
 And what will you do?
 
-## :point_right: [Create a Character](./0.5-character-creation.md) :point_left:
+## :point_right: [Create a Character](./1-character-creation.md) :point_left:

@@ -33,5 +33,5 @@ At a minimum you should at least consider (but don't have to have in stone):
 
 These are sort of like "classes" from DnD or other RPGs. This game is very strong on the *narrative* side of things, so your playbook is heavily tied to your character's background. 
 
-You can read the official rules for character creation in the [Core Book](../resources/Core.pdf) starting on page `112`. All 14 of the playbooks are listed in the [Playbooks](../resources/Playbooks.pdf) resource, but full details about the narrative behind each playbook is found in the [Core Book](../resources/Core.pdf) and the four bonus playbooks (The Destined, The Elder, The Foundling, and The Razor) in the supplemental [Wan Shi Tong Book](../resources/WST.pdf)  
+You can read the official rules for character creation in the [Core Book](../resources/Core.pdf) starting on page `112`. All 14 of the playbooks are listed in the [Playbooks](../resources/Playbooks.pdf) resource, but the full narratives behind the first 10 playbooks are found in the [Core Book](../resources/Core.pdf) and the four bonus playbooks (The Destined, The Elder, The Foundling, and The Razor) in the supplemental [Wan Shi Tong Book](../resources/WST.pdf)  
 
