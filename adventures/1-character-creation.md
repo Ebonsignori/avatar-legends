@@ -5,21 +5,21 @@ You **don't** have to read through all these rules and rule books to create a ch
 In fact, we can even create a different story and plot hook together if you aren't in love with the one I provided in the [introduction](./0-introduction.md).
 
 At a minimum you should at least consider (but don't have to have in stone):
-1. Your characters fighting style:
+1. Your fighting style:
     - Earth :earth_americas:
     - Fire :fire:
     - Air :cloud:
     - Water :ocean:
     - Weapons :punch: (Chi blockers, Kyoshi warrior, sword master, etc)
     - Technology :zap: (machines, traps, etc) 
-2. Your character's background. Some examples:
+2. Your background. Some examples:
     - Military
     - Monastic
     - Outlaw
     - Privileged
     - Urban
     - Wilderness
-3. Your characters name.
+3. [Your name](https://youtu.be/tZQJhvs4amQ).
 4. Your connections! Do you know anyone else in the party or intro sequence? 
 
     Perhaps you are siblings, friends, partners in crime, etc. If you are an airbender it might make sense for you to know the older man from the intro. Maybe you are a bender from the same temple. Maybe his apprentice?
