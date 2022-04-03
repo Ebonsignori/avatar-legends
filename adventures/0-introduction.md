@@ -10,7 +10,7 @@ Above them, a ship speeds along the surface. Propelled along by an unnatural cur
 
 Disturbed by a ship that seems to have the power to move the very water itself, the school of fish bursts from the surface, fill their lungs with air, spread their wings, and flee to their nests.
 
-However, the big fish is determined to get the most of his stolen spot, so he remains. He basks for a time, but before long another fast moving ship disrupts his relaxation. The last thing he sees before getting sucked into a whirlpool towards the back end of the ship is a hulking dark metallic hull.
+However, the big fish is determined to get the most of his stolen spot, so he remains. He returns to it and basks for a time, but before long another fast moving ship disrupts his relaxation. The last thing he sees before getting sucked into a whirlpool towards the back end of the ship is a hulking dark metallic hull.
 
 - - -
 
